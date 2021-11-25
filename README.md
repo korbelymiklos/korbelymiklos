@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @korbelymiklos
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+korbelymiklos/korbelymiklos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+---> Erik egy csöves meg ákosh is hahahah :D 
+Érik a szölö hajlik a vessző ( im the best ) :""D 
+Windows 11 már kijött de nincs pénz megvenni :""( 
+Hajrá huzzuk be !!!  +rep +rep +rep ++++ 
